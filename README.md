@@ -1,0 +1,4 @@
+- 👋 Hello there, I’m @AlephCubed.
+- I used to be called sillyredcar.
+- I like to read, play video games, program, and other nerdy things.
+- I am also a huge Star Wars fan.
